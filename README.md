@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @M4BladeX
-- i make basic apps ans web links
+- i make basic apps and web links
 - 📫 How to reach me ...(e-mail=daksh12gb@gmail.com)
 - go and explore my repositorys.
